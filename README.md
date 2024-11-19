@@ -6,4 +6,3 @@ Sharing: Knowing and learning from the work of colleagues.
 
 Presented by:
 Juan David Páez Olivares – 20231020028
-Juan Esteban Martinez Buritica - 20222020039
